@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @mjsmjsmjsmjs
+- 👀 I’m interested in computers
